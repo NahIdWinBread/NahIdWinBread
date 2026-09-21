@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... scribe/vide
 - 💞️ I’m looking to collaborate on ... larning friend
 - 📫 How to reach me ... send me discord: bardlygera
-- 😄 Pronouns: ... bread
+- 😄 Pronouns: ... bready
 - ⚡ Fun fact: ... caw can fly
 
 <!---
